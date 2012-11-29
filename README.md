@@ -1,0 +1,3 @@
+Mahlzeit, meine Name ist Philipp Unger und Sie sind gerade über meine Präsenz gestolpert. Sie Glückspilz Sie. Diese Präsenz soll als Verweis auf meine persönlichen Online-Spielplätze für grafische Arbeiten fungieren. Sie wird sich ständig weiterentwickeln und sich so immer wieder an mich anpassen.
+
+- " Ich liebe es wenn Kreativität und Strategie nett zusammen spielen und so eine gute grafische Arbeit entsteht. "
